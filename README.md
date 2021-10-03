@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @casizzi
+- 👀 I’m interested in building products that make a difference in the world.
+- 🌱 I’m currently learning more about tech in crypto
+- 💞️ I’m looking to collaborate on things that make a difference in the world.
+- 📫 casizzi@gmail.com
